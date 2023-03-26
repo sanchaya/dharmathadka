@@ -1,6 +1,6 @@
-# ಡಿ. ಎಸ್. ನಾಗಭೂಷಣ ಸಂಪಾದಕತ್ವದ 'ಹೊಸ ಮನುಷ್ಯ'  ಕನ್ನಡ ಮಾಸಿಕದ ಸಂಚಿಕೆಗಳು
+# ಧರ್ಮತ್ತಡ್ಕ ಯುವಕ ಸಂಘ, ಗ್ರಂಥಾಲಯ ಮತ್ತು ವಾಚನಾಲಯದ ಪುಸ್ತಕಗಳ ಸಂಚಯ
 
-ಡಿ. ಎಸ್. ನಾಗಭೂಷಣ ಸಂಪಾದಕತ್ವದ 'ಹೊಸ ಮನುಷ್ಯ'  ಕನ್ನಡ ಮಾಸಿಕದ ಸಂಚಿಕೆಗಳು is a showcase of the #ServantsOfKnowledge project works @Sanchaya
+ಧರ್ಮತ್ತಡ್ಕ ಯುವಕ ಸಂಘ, ಗ್ರಂಥಾಲಯ ಮತ್ತು ವಾಚನಾಲಯದ ಪುಸ್ತಕಗಳ ಸಂಚಯ is a showcase of the #ServantsOfKnowledge project works @Sanchaya
 
 Check it out : https://sanchaya.org & https://sanchifoundation.org
 
